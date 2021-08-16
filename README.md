@@ -4,4 +4,4 @@ Type your answer here please.
 
 # Is national flag related to Texas state flag?
 
-Type your answer here please.
+I guess there is no relation at all.
